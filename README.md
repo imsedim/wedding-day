@@ -7,7 +7,7 @@ We are really looking forward to welcoming you to our wedding this Sunday, 31st 
 
 Please arrive at 15:30 at **Fitzrovia Chappel** – [2 Pearson Square, W1T 3BF](https://maps.app.goo.gl/Ne6kDLgbKJWpSNJZ7) with the ceremony starting at 16:00. 
 
-The ceremony will be follwed by a short champagne reception. 
+The ceremony will be followed by a short champagne reception. 
 
 At 17:00 we will move to **Morito, Hackney Road** – [195 Hackney Road, E2 8JL](https://maps.app.goo.gl/53JdsL7QEGS1e3DL8) for dinner and dancing. 
 
